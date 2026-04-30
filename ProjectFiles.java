@@ -1,1 +1,0 @@
-Double check links before you click on them, it could be a harmful file!
